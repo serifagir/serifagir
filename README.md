@@ -1,5 +1,5 @@
 ## 💫 I am serifagir:
-#Dev from Istanbul<br>Sophomore electrical & electronic engineering student at Istanbul University
+Dev from Istanbul<br>Sophomore electrical & electronic engineering student at Istanbul University
 
 
 ## 🌐 Contact:
