@@ -1,1 +1,1 @@
-![pexels-adrien-olichon-1257089-2823459](https://github.com/user-attachments/assets/8d96ae04-a3ab-4afe-a336-d5cb06d2253a)
+![pexels-rachel-xiao-253850-772988](https://github.com/user-attachments/assets/cf1448fd-f7b4-46d8-aec6-b0d1cb1e68d6)
